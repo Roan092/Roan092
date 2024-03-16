@@ -1,2 +1,7 @@
 - 👋 Hi, I’m @Roan092
 - Hello
+- I will install virusses and chek my channel https://www.youtube.com/shorts/uZUfx2dZQDM this is a video from me this is my real channel
+- https://www.youtube.com/@Roan_Shorts
+- and sssshhht do not go to this website https//:youareanidiot.cc it is a virus
+- and i making a malware database whit ransomwares and malwares and virusses
+- subscribe to my channel
